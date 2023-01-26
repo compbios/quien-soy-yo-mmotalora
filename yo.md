@@ -2,7 +2,7 @@
 ## _Margarita Otálora Esteban MD_
 
 
-Soy anestesióloga del :hospital: San Ignacio desde el 2019, hice mis estudios de pregrado y posgrado en la PUJ y me ecuentro cursando la maestría de epidemiología clínica.
+Soy anestesióloga del :hospital: San Ignacio desde el 2019, hice mis estudios de pregrado y posgrado en la PUJ y me encuentro cursando la [maestría de epidemiología clínica](https://www.javeriana.edu.co/maestria-epidemiologia-clinica).
 
 ## En resumen
 - Mi negocio es el sueño :sleeping: :zzz:
